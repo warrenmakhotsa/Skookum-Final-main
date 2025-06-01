@@ -1,0 +1,2 @@
+# Skoom-final
+Skoom SEO
